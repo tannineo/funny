@@ -1,0 +1,2 @@
+# funny
+Funny Collections
